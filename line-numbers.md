@@ -4,7 +4,7 @@
 #### 4
 #### 5 Mr. Mueller was not here!
 #### 6
-#### 7
+#### 7 Mr. Shmueller wuzn't here
 #### 8
 #### 9 
 #### 10
